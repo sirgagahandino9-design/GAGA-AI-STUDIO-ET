@@ -1,1 +1,1 @@
-# GAGA-AI-STUDIO-ET
+# shashogo woreda integrated digital system 
